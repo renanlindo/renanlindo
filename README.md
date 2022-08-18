@@ -1,0 +1,3 @@
+- 👋 oi,sou o @renan
+- 👀 Tenho interesse em crescer na plataforma 
+- 🌱No momento quero aprender programação 
